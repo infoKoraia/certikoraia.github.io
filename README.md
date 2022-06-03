@@ -1,1 +1,0 @@
-# certikoraia.github.io
